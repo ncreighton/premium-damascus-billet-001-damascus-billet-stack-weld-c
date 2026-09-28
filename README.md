@@ -1,0 +1,2 @@
+# premium-damascus-billet-001-damascus-billet-stack-weld-c
+Tired of losing track of your billet stacks and weld sequences mid-project? The Damascus Billet Stack &amp; Weld Craft Workshop brings order to your forge, so you can focus on the art of pattern welding.  This Notion template eliminates the chaos of managing multiple billet projects by providing a structured workspace for planning, tracking, and refini
